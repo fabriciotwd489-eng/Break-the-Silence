@@ -19,10 +19,10 @@ Observação: O aplicativo ainda não foi desenvolvido — trata-se de uma **pro
 - Guilherme Miguel de Carvalho Guedes 
 
 📅 2024
-🔗 [https://github.com/gabrielinacio19]
+🔗https://github.com/fabriciotwd489-eng 
 
 ----
 
 📬 Contato
-- ✉️ Email: *gabrielinacio487@gmail.com*  
-- 💼 LinkedIn: [www.linkedin.com/in/gabriel-inácio-b935012a7)
+- ✉️ Email:  fabriciotwd489@gmail.com
+- 💼 LinkedIn: www.linkedin.com/in/fabricio-cunha-4b30a438b
